@@ -1,1 +1,1 @@
-# Yu-a-Mert-ak-r
+# Yuşa Mert Çakır
